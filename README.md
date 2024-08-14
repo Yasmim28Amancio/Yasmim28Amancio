@@ -1,7 +1,7 @@
-• Olá, me chamo Yasmim!
-• Graduanda em Análise e Desenvolvimento de Sistemas 👩🏻‍💻
-• Desenvolvedora Front-End 💜
-• Gosto muito de estudar, ler e tocar meus instrumentos ✨
+- Olá, me chamo Yasmim!
+- Graduanda em Análise e Desenvolvimento de Sistemas 👩🏻‍💻
+- Desenvolvedora Front-End 💜
+- Gosto muito de estudar, ler e tocar meus instrumentos ✨
 
 
 - 🔗 Meu LinkedIn: www.linkedin.com/in/
