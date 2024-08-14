@@ -4,8 +4,7 @@
 - Gosto muito de estudar, ler e tocar meus instrumentos ✨
 
 
-- 🔗 Meu LinkedIn: www.linkedin.com/in/
-yasmim-vitória-da-silva-amâncio-896b24256
+- 🔗 Meu LinkedIn: www.linkedin.com/in/yasmim-vitória-da-silva-amâncio-896b24256
 
 
 <!---
